@@ -2,7 +2,7 @@
 
 Email Me 👉 ✉️ **spatil78195@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** not wrking 
+- 🔭 **I’m currently working on:** Full-stack developer
 - 🌱 **I’m currently learning:** paython
 - 📫 **How to reach me:** spatil78195@gmail.com
 ## 🌐 Socials:
